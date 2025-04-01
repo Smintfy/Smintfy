@@ -1,3 +1,3 @@
 ### Smintfy
 
-Product Designer.
+Product Designer. Design & Engineering.
